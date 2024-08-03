@@ -46,5 +46,8 @@ https://www.dropbox.com/scl/fi/z0o9dluq7mo63v9jbc4ql/Avalon..zip?rlkey=v16zybmiz
 k8 https://www.dropbox.com/scl/fi/3j89pjt71f6kn46q70gvt/Kia-K8-2023.zip?rlkey=ay7ceuapl9uaa26pgsm0wsiez&dl=1
 
 
-land pic
-https://www.dropbox.com/scl/fi/37p4f47m9ajcgg256hhj1/land.cr.zip?rlkey=83ex3heufzx7i6tcb8hw2bnve&dl=1
+land 22
+
+https://www.dropbox.com/scl/fi/ara7f7fdl44vlqvnpz93m/LandCruiser300_Omashida_modland.zip?rlkey=ka5ahhp0u8ljssyapgnt8kyme&dl=1
+
+
