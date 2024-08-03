@@ -32,3 +32,9 @@ https://www.dropbox.com/scl/fi/2glepmy8oh44b5madevei/Capris.zip?rlkey=wlg1vnx6yf
 
 capris2
 https://www.dropbox.com/scl/fi/90g7wv774fr5qajyq0z9a/Caprice2.zip?rlkey=f433rjhmwipgrnlbg5r56zj2p&dl=1
+
+
+tire
+
+
+https://www.dropbox.com/scl/fi/uxhmg6d33yoy8seii7g1n/kn0zmaxxis900.zip?rlkey=1yncwta2talxp1k1rz717r9as&st=1lc6ulvi&dl=1
