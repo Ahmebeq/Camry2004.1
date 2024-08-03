@@ -39,5 +39,12 @@ tire
 
 https://www.dropbox.com/scl/fi/uxhmg6d33yoy8seii7g1n/kn0zmaxxis900.zip?rlkey=1yncwta2talxp1k1rz717r9as&st=1lc6ulvi&dl=1
 
-ford
-https://www.dropbox.com/scl/fi/u1isfa8tuurd60f24rg7o/Ford_Crown_Victoria_V2.zip?rlkey=sy7tpt00h5vf23ac1rru55qh2&st=yl5n8f4i&dl=1
+Avalon 
+https://www.dropbox.com/scl/fi/z0o9dluq7mo63v9jbc4ql/Avalon..zip?rlkey=v16zybmiz4w738kypk5c03uvc&dl=1
+
+
+k8 https://www.dropbox.com/scl/fi/3j89pjt71f6kn46q70gvt/Kia-K8-2023.zip?rlkey=ay7ceuapl9uaa26pgsm0wsiez&dl=1
+
+
+land pic
+https://www.dropbox.com/scl/fi/37p4f47m9ajcgg256hhj1/land.cr.zip?rlkey=83ex3heufzx7i6tcb8hw2bnve&dl=1
