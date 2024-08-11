@@ -6,8 +6,8 @@ boz
 https://www.dropbox.com/scl/fi/j79a9ke5s4cg8zyndugzd/Ali-Mercedes-1924_modland.zip?rlkey=ltzoik84fk397lhqtvjbtd8ha&st=sj0btn88&dl=1
 
 
-land2005
-https://www.dropbox.com/scl/fi/aegk3yvqyx9cocuzlfec5/kn0z_Land_100.V2_Hotfix.zip?rlkey=aj7o0fyfq37cyzm1kti6edcmh&st=86i8mkrl&dl=1
+corolla 21
+https://gofile.io/d/9Jwsfc
 
 
 rb3
