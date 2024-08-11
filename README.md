@@ -57,3 +57,11 @@ https://www.dropbox.com/scl/fi/gfm4s2kpk88xjuoermfv4/land.crii1.zip?rlkey=cp4y5w
 
 اكسنت +
 https://www.dropbox.com/scl/fi/xxmctr3yvl8qmfy055oyz/Hyundai_Accent_Solaris_16-17.zip?rlkey=5xa153krnmtnzqfqc53ftr867&dl=1
+
+
+ماب تفحيط
+https://www.dropbox.com/scl/fi/qirv36px5yjknwosl5czq/Riyadh-Tookee-Map.zip?rlkey=si7rmm9ishiuw05x76ili7m5x&dl=1
+
+
+هايلكس 2005
+https://www.dropbox.com/scl/fi/2vazw8hkdpqt2b1uc5k7r/qifHilux2005.zip?rlkey=of4fq7miegzm7qfevktl7d75y&dl=1
