@@ -54,3 +54,6 @@ https://www.dropbox.com/scl/fi/ara7f7fdl44vlqvnpz93m/LandCruiser300_Omashida_mod
 land
 
 https://www.dropbox.com/scl/fi/gfm4s2kpk88xjuoermfv4/land.crii1.zip?rlkey=cp4y5w6y9invggurejwterv1u&dl=1
+
+اكسنت +
+https://www.dropbox.com/scl/fi/xxmctr3yvl8qmfy055oyz/Hyundai_Accent_Solaris_16-17.zip?rlkey=5xa153krnmtnzqfqc53ftr867&dl=1
