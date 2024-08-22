@@ -65,3 +65,17 @@ https://www.dropbox.com/scl/fi/qirv36px5yjknwosl5czq/Riyadh-Tookee-Map.zip?rlkey
 
 هايلكس 2005
 https://www.dropbox.com/scl/fi/2vazw8hkdpqt2b1uc5k7r/qifHilux2005.zip?rlkey=of4fq7miegzm7qfevktl7d75y&dl=1
+
+وزنيات لاند 
+
+https://www.dropbox.com/scl/fi/grzmoen4du1ev6rk8alul/land.wzneh.zip?rlkey=5hou4i45bwi954qn0d98nhjb6&st=ssc1rzbk&dl=1
+
+
+
+جرافيك تجريبي
+https://www.dropbox.com/scl/fi/wrn9kv6mfb4v7ojfzvfty/n7dy-Graphics1.zip?rlkey=tjv4b1h4xfoxqmueo05wo5m50&st=hlcw1msj&dl=1
+
+
+
+ربع تجريبي 
+https://www.dropbox.com/scl/fi/po90w1l3aikqnvoxv6lva/F6EZ_J70.zip?rlkey=f6ad5d04do9eah21i7erfbrr5&st=3nv8uj5f&dl=1
