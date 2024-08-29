@@ -72,8 +72,9 @@ https://www.dropbox.com/scl/fi/grzmoen4du1ev6rk8alul/land.wzneh.zip?rlkey=5hou4i
 
 
 
-جرافيك تجريبي
-https://www.dropbox.com/scl/fi/wrn9kv6mfb4v7ojfzvfty/n7dy-Graphics1.zip?rlkey=tjv4b1h4xfoxqmueo05wo5m50&st=hlcw1msj&dl=1
+النترا 24 
+
+https://www.dropbox.com/scl/fi/yi2sym1d9o8e1vk987jmy/Elantra-25.24.zip?rlkey=91trnagqqkd9023m6sicr59kv&st=5c0prs5x&dl=1
 
 
 
