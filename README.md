@@ -30,8 +30,8 @@ mix
 https://gofile.io/d/hSrRw7
 
 
-capris2
-https://www.dropbox.com/scl/fi/90g7wv774fr5qajyq0z9a/Caprice2.zip?rlkey=f433rjhmwipgrnlbg5r56zj2p&dl=1
+Camry 22
+https://www.dropbox.com/scl/fi/7ljk1knx7m399l9gax39v/Camry_2022_KHwylD.zip?rlkey=oafgmvjjua2h3jlk3r07rarly&st=cwaekvol&dl=1
 
 
 rb3 2009
