@@ -26,8 +26,8 @@ gmc
 https://www.dropbox.com/scl/fi/9cotkgrx2xw898urcec5y/GMC-Sierra-2013-2007.zip?rlkey=7yxwrueu1s1qkw8jeemb3cph0&st=g21j779y&dl=1 
 
 
-mix
-https://gofile.io/d/hSrRw7
+تورس 23
+https://www.dropbox.com/scl/fi/kwh7ks2ifravvq8nyc5em/Ford_taurus_23.zip?rlkey=7kz7tul5fec1kw1ir83z6zyj7&dl=1
 
 
 Camry 22
