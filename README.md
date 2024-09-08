@@ -80,3 +80,11 @@ https://www.dropbox.com/scl/fi/yi2sym1d9o8e1vk987jmy/Elantra-25.24.zip?rlkey=91t
 
 فورد فكتوريا
 https://www.dropbox.com/scl/fi/x7hf4mszum54czax92sh8/fordcrownvictoria.zip?rlkey=gdcay8039cu8kqcvv4k9nk4y0&st=3gufscyd&dl=1
+
+
+النترا 15
+https://www.dropbox.com/scl/fi/amzeivxf14arb74ooxs2d/Elantra_20151.zip?rlkey=3b3afa59z6bnkptoauo3xf44y&st=myjlsf0b&dl=1
+
+
+
+كابرس 2016https://www.dropbox.com/scl/fi/fyo8sjicpatvhz55g9iab/Chevrolet-Caprice-v1.1-BETA.zip?rlkey=8mwvb94fmg3erlhw9cmevdl18&st=kaeloeok&dl=1
