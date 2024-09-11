@@ -2,8 +2,8 @@
 
 https://www.dropbox.com/scl/fi/ugcrjjl24yc61up1ttyd8/Ali-Toyota-Camry-2003-2006.zip?rlkey=udttsypd98gca43ttc4nbept7&st=343v3dvp&dl=1
 
-boz 
-https://www.dropbox.com/scl/fi/j79a9ke5s4cg8zyndugzd/Ali-Mercedes-1924_modland.zip?rlkey=ltzoik84fk397lhqtvjbtd8ha&st=sj0btn88&dl=1
+جمس بهبهاني
+https://www.mediafire.com/file/lptrp5urfd0skwp/GMC_Sierra_1975-1985.zip/file
 
 
 corolla 21
@@ -59,8 +59,8 @@ https://www.dropbox.com/scl/fi/gfm4s2kpk88xjuoermfv4/land.crii1.zip?rlkey=cp4y5w
 https://www.dropbox.com/scl/fi/xxmctr3yvl8qmfy055oyz/Hyundai_Accent_Solaris_16-17.zip?rlkey=5xa153krnmtnzqfqc53ftr867&dl=1
 
 
-ماب تفحيط
-https://www.dropbox.com/scl/fi/qirv36px5yjknwosl5czq/Riyadh-Tookee-Map.zip?rlkey=si7rmm9ishiuw05x76ili7m5x&dl=1
+ كابرس 96
+https://sharemods.com/7lmehzxljyl9/CapriceClassic4thgen.zip.html
 
 
 هايلكس 2005
