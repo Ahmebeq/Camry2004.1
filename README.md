@@ -66,9 +66,9 @@ https://sharemods.com/7lmehzxljyl9/CapriceClassic4thgen.zip.html
 هايلكس 2005
 https://www.dropbox.com/scl/fi/2vazw8hkdpqt2b1uc5k7r/qifHilux2005.zip?rlkey=of4fq7miegzm7qfevktl7d75y&dl=1
 
-وزنيات لاند 
+كامري 2002
 
-https://www.dropbox.com/scl/fi/grzmoen4du1ev6rk8alul/land.wzneh.zip?rlkey=5hou4i45bwi954qn0d98nhjb6&st=ssc1rzbk&dl=1
+https://modsfire.com/pJXBLML9LZSgiYe
 
 
 
