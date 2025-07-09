@@ -64,8 +64,8 @@ https://www.dropbox.com/scl/fi/gfm4s2kpk88xjuoermfv4/land.crii1.zip?rlkey=cp4y5w
 https://www.dropbox.com/scl/fi/xxmctr3yvl8qmfy055oyz/Hyundai_Accent_Solaris_16-17.zip?rlkey=5xa153krnmtnzqfqc53ftr867&dl=1
 
 
- كابرس 96
-https://sharemods.com/7lmehzxljyl9/CapriceClassic4thgen.zip.html
+ بكج
+https://modsfire.com/983R586f4Cq0S5L
 
 
 هايلكس 2005
