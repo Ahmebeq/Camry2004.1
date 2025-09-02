@@ -28,7 +28,7 @@ https://www.dropbox.com/scl/fi/9xotb730c80nwebpzn6le/axle_valley.zip?rlkey=gouih
 
 
 النترا ابو زهره
-https://www.dropbox.com/scl/fi/ckxruhwybunuggy1mqjmi/Elantra_19_NM7-SERVER.zip?rlkey=d1sntqhpnjjg1ag142cv5k0ff&st=7uynxbhy&dl=0
+https://www.dropbox.com/scl/fi/ckxruhwybunuggy1mqjmi/Elantra_19_NM7-SERVER.zip?rlkey=d1sntqhpnjjg1ag142cv5k0ff&st=7uynxbhy&dl=1
 
 
 تورس 23
@@ -42,7 +42,7 @@ https://www.dropbox.com/scl/fi/7ljk1knx7m399l9gax39v/Camry_2022_KHwylD.zip?rlkey
 شاص ابو سعيد
 
 
-https://www.dropbox.com/scl/fi/x2cx3odswaffgpkzsoyw0/abosaad_LX_2009-2-1.zip?rlkey=pagjfhtjwt67emxu0h6bchca8&st=iar9sbsd&dl=0
+https://www.dropbox.com/scl/fi/x2cx3odswaffgpkzsoyw0/abosaad_LX_2009-2-1.zip?rlkey=pagjfhtjwt67emxu0h6bchca8&st=iar9sbsd&dl=1
 
 Avalon 
 https://www.dropbox.com/scl/fi/z0o9dluq7mo63v9jbc4ql/Avalon..zip?rlkey=v16zybmiz4w738kypk5c03uvc&dl=1
