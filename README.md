@@ -42,11 +42,11 @@ https://www.dropbox.com/scl/fi/7ljk1knx7m399l9gax39v/Camry_2022_KHwylD.zip?rlkey
 
 https://www.dropbox.com/scl/fi/f48zjz172inm3zsmi04yo/abosaad_LX_2006.zip?rlkey=ked17rh66f46yj69vfabhc73e&st=x93fyosq&dl=1
 
-Avalon 
-https://www.dropbox.com/scl/fi/z0o9dluq7mo63v9jbc4ql/Avalon..zip?rlkey=v16zybmiz4w738kypk5c03uvc&dl=1
+لاند تجريبي
+https://www.mediafire.com/file/heju6n46ea4h3ag/land+cruiser+j100.zip/file
 
-
-k8 https://www.dropbox.com/scl/fi/3j89pjt71f6kn46q70gvt/Kia-K8-2023.zip?rlkey=ay7ceuapl9uaa26pgsm0wsiez&dl=1
+موتر نسيته
+https://modsfire.com/7jT6I2wBYWP7n87
 
 
 بكج مواتر 
@@ -97,4 +97,4 @@ map carpark
 https://www.dropbox.com/scl/fi/ew42xx651zmlruyhhssmz/carpark_yakuza4_am5.zip?rlkey=alxz2zj21u6abx3b1vevndli6&st=dv32fstr&dl=1
 
 
-ماب توكسك https://www.mediafire.com/file/2zvq84d65320j6m
+ماب توكسك https://www.mediafire.com/file/bvbtq083xr43leo/0Toxic_Street_v1_1.zip/file
