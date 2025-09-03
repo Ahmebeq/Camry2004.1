@@ -26,7 +26,7 @@ https://www.dropbox.com/scl/fi/9xotb730c80nwebpzn6le/axle_valley.zip?rlkey=gouih
 
 
 شاص خويلد
-https://www.dropbox.com/scl/fi/3xs5jxttfb4way81egxuv/Land_Cruiser_Lc70_2025.zip?rlkey=36ady2zx8jlulfgo37anj3nn4&st=drll1flh&dl=١
+https://www.dropbox.com/scl/fi/3xs5jxttfb4way81egxuv/Land_Cruiser_Lc70_2025.zip?rlkey=36ady2zx8jlulfgo37anj3nn4&st=drll1flh&dl=1
 
 
 تورس 23
