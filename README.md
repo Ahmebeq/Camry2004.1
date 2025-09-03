@@ -25,7 +25,7 @@ map.tre8
 https://www.dropbox.com/scl/fi/9xotb730c80nwebpzn6le/axle_valley.zip?rlkey=gouih3jf95uakamb39jo2qb87&st=1m88yosj&dl=1
 
 
-شاص خويلد
+شاص خويلد2025
 https://www.dropbox.com/scl/fi/3xs5jxttfb4way81egxuv/Land_Cruiser_Lc70_2025.zip?rlkey=36ady2zx8jlulfgo37anj3nn4&st=drll1flh&dl=1
 
 
@@ -58,8 +58,8 @@ land
 
 https://www.dropbox.com/scl/fi/gfm4s2kpk88xjuoermfv4/land.crii1.zip?rlkey=cp4y5w6y9invggurejwterv1u&dl=1
 
-اكسنت +
-https://www.dropbox.com/scl/fi/xxmctr3yvl8qmfy055oyz/Hyundai_Accent_Solaris_16-17.zip?rlkey=5xa153krnmtnzqfqc53ftr867&dl=1
+شاص ابو سعيد 2009
+https://www.dropbox.com/scl/fi/lrduc0mhlqmdy0xctwv61/abosaad_LX_2009-2-1.zip?rlkey=kmgcvolq0qolc1c6uycuz1v92&st=9ppv2snl&dl=1
 
 
  بكج
@@ -69,9 +69,9 @@ https://modsfire.com/983R586f4Cq0S5L
 هايلكس 2005
 https://www.dropbox.com/scl/fi/2vazw8hkdpqt2b1uc5k7r/qifHilux2005.zip?rlkey=of4fq7miegzm7qfevktl7d75y&dl=1
 
-كامري 2002
+شاص خويلد 2023
 
-https://modsfire.com/pJXBLML9LZSgiYe
+https://www.dropbox.com/scl/fi/r6v0lwt7oclsphxk3jq6o/Land_Cruiser_j70_2007_KHwylD.dts.zip?rlkey=cg923kobyab7y4vr9yd4nyr50&st=l330492b&dl=1
 
 
 
